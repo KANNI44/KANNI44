@@ -15,7 +15,7 @@
 📚 Always learning new technologies and improving my skills <br/> 
 🌐 Currently exploring backend frameworks and API integration  <br/>
 
-📫 How to reach me: [kanishakchoudhary268@gmail.com]   <br/>
+📫 How to reach me: [kanishakchoudhary1327@gmail.com]   <br/>
 
 
 
